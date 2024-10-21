@@ -1,5 +1,6 @@
 # Abinash Sahoo 👨‍💻
-
+Student of Lovely Professional University
+Panjab,INDIA
 [Email Me](mailto:abinash.sahoo.work@gmail.com)  
 [LinkedIn Profile](#)  
 
